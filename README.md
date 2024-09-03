@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @OKegg
 - 👀 I’m interested in sleep
 - 🌱 I’m currently learning feel
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me laoyebaohou@gmail.com
+- 💞️ I’m looking to collaborate on tjra
+- 📫 How to reach me 3051213253@qq.com
 
 <!---
 wastttttt/wastttttt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
